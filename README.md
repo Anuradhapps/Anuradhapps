@@ -41,6 +41,4 @@ This account is used for:
 
 👉 https://github.com/darshaanuradha
 
----
 
-⭐ *Check my main account for professional and production-level projects, and this account for experimental work and NPSS-related development.*
